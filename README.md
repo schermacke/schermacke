@@ -1,2 +1,2 @@
 ## 👊🏻 Meu nome é Eduardo schermack!!! 👊🏻
-wwww.eduardoschermack.com.br
+www.eduardoschermack.com.br
